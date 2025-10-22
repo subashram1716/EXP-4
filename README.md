@@ -47,6 +47,19 @@ Rectifier with filter
 
 WAVEFORM:
 
+![WhatsApp Image 2025-10-22 at 18 55 32_fe65368e](https://github.com/user-attachments/assets/c8bfcc66-eb10-4126-a583-7d7aeb929494)
+![WhatsApp Image 2025-10-22 at 18 55 43_77d53f45](https://github.com/user-attachments/assets/63c02a44-0699-4cff-aceb-ce71f3debacd)
+![WhatsApp Image 2025-10-22 at 18 55 45_e79d4740](https://github.com/user-attachments/assets/49665dbb-9cb6-4822-815c-58df08c01a4a)
+![WhatsApp Image 2025-10-22 at 18 55 49_5bac2b26](https://github.com/user-attachments/assets/84fe7533-2288-4cb0-866f-a13e4ee8378d)
+![WhatsApp Image 2025-10-22 at 18 55 50_9d64a42e](https://github.com/user-attachments/assets/4c9ab04a-b159-4dc3-a027-cd87f2345319)
+![WhatsApp Image 2025-10-22 at 18 55 50_48fc9dd4](https://github.com/user-attachments/assets/50932dd5-d795-4b10-82ea-eda5535bd017)
+![WhatsApp Image 2025-10-22 at 18 55 52_a190f95b](https://github.com/user-attachments/assets/08e11bc5-bf95-4d59-b1f9-28dd9e1684da)
+![WhatsApp Image 2025-10-17 at 08 50 10_3b1af33c](https://github.com/user-attachments/assets/f9d53c04-55c2-473e-950e-6066142498f5)
+![WhatsApp Image 2025-10-17 at 08 50 10_a31bbabc](https://github.com/user-attachments/assets/8905a198-edce-4c8b-b1f9-dd35307fc453)
+
+
+
+
 
 RESULT:
 
