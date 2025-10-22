@@ -56,6 +56,8 @@ WAVEFORM:
 ![WhatsApp Image 2025-10-22 at 18 55 52_a190f95b](https://github.com/user-attachments/assets/08e11bc5-bf95-4d59-b1f9-28dd9e1684da)
 ![WhatsApp Image 2025-10-17 at 08 50 10_3b1af33c](https://github.com/user-attachments/assets/f9d53c04-55c2-473e-950e-6066142498f5)
 ![WhatsApp Image 2025-10-17 at 08 50 10_a31bbabc](https://github.com/user-attachments/assets/8905a198-edce-4c8b-b1f9-dd35307fc453)
+![WhatsApp Image 2025-10-22 at 12 37 47_5327f152](https://github.com/user-attachments/assets/da7e12f3-a713-4ea8-adcf-e933d5072f86)
+![WhatsApp Image 2025-10-22 at 12 39 19_c3eca99e](https://github.com/user-attachments/assets/d245f93e-1f12-40e0-9fb0-34f82a923ac0)
 
 
 
